@@ -48,10 +48,8 @@ in in in now time s_  _ sfsk_______asdf____H______hel___________________________
 
 # CELEBRATE LINE 49 
 
-<kkdr>
-  
 **To be honest**
 
 # GITHUB YYDS YYDS YYDS
 
-我要开源代码也没啥用噢 _ 所以也就用GitHub _ witHoUt aNY CODE!!_____<so down.>
+我要开源代码也没啥用噢 _ 所以也就用GitHub _ witHoUt aNY CODE!!_____
