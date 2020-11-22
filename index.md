@@ -4,17 +4,15 @@ ummm welcome welcome
 
 # First, Please turn off the automatic translation of web pages
 
-如果你是棺材店五折优惠玩家 那你是第一个看到这个网站的 这网址我第一个给的你
-
-如果你是专业人生导师 那你是第二个看到这个网站的
-
-如果你也是自闭症患者 那你是前五个看到这个网站的
+棺材店五折优惠玩家 _ 专业人生导师 _ 自闭症患者
 
 **我可是费劲巴拉的设置了权限（！**
 
+***嘶 所以很感谢愿意花时间点进来的你呀***
+
 咕噜噜 I will improve it step by step
 
-## 常来看看
+**常来看看**
 
 it's 2020/11/23 1:20
 
@@ -43,3 +41,11 @@ but **in the end**
 it doesn't even matter.
 
 ***that's all _ thank you for your listening _ and it's 2020/11/23 1:32***
+
+in in in now time s_  _ sfsk_______asdf____H______hel_____________________________________________________
+
+救命了 我恨 我恨 我恨历史
+
+# CELEBRATE LINE 49 
+
+<kkdr>
