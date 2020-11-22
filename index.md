@@ -16,7 +16,7 @@ ummm welcome welcome
 
 ## 常来看看
 
-now is 2020/11/23 1:20
+it's 2020/11/23 1:20
 
 怎么大家都睡了哦（挠头
 
@@ -29,3 +29,17 @@ adding……
 *でも、今はまだ一人もいない。*
 
 **我永远爱lyt**
+
+it's hard to follow you all the time
+
+and please let my down
+
+i try so hard and 
+
+got so far
+
+but **in the end**
+
+it doesn't even matter.
+
+***that's all _ thank you for your listening _ and it's 2020/11/23 1:32***
