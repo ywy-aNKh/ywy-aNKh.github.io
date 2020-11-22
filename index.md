@@ -15,3 +15,17 @@ ummm welcome welcome
 咕噜噜 I will improve it step by step
 
 ## 常来看看
+
+now is 2020/11/23 1:20
+
+怎么大家都睡了哦（挠头
+
+Try to insert a picture……
+
+adding……
+
+## 还是欢迎的嘛
+
+*でも、今はまだ一人もいない。*
+
+**我永远爱lyt**
