@@ -2,7 +2,7 @@
 
 ummm welcome welcome
 
-# First, Please turn off the automatic translation of web pages
+# First, Please turn off the automatic translation of web pages！
 
 棺材店五折优惠玩家 _ 专业人生导师 _ 自闭症患者
 
@@ -57,3 +57,20 @@ in in in now time s_  _ sfsk_______asdf____H______hel___________________________
 umm
 
 ummmmmmmmmmmmmm 
+
+### 无聊子啊无聊子
+- 到底谁会第一个打开这里啊（
+
+*真的很期待啊喂*
+
+# 虽然不知道你能不能修改，但是还请试试：
+
+## **[这应该是修改地址，直接点试试（？](https://github.com/ywy-aNKh/ywy-aNKh.github.io/edit/main/index.md "太荣幸了，你愿意一直读到这里（笑")**
+
+# 如果能修改，而且你愿意的话，可以在74行的#后面直接留言
+
+哪怕吱一声也好呀（小声
+
+# 
+
+I'm really looking forward to you. When will you find me………？
