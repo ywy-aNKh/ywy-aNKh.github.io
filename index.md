@@ -4,7 +4,7 @@ ummm welcome welcome
 
 # First, Please turn off the automatic translation of web pages！
 
-棺材店五折优惠玩家 _ 专业人生导师 _ 自闭症患者
+棺材店六折优惠玩家 _ 自闭儿童 _
 
 **我可是费劲巴拉的设置了权限（！**
 
@@ -74,3 +74,5 @@ ummmmmmmmmmmmmm
 # 
 
 I'm really looking forward to you. When will you find me………？
+
+#### 该怎么出其不意的让这里被你们发现呢（思考
