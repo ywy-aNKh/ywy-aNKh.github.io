@@ -1,12 +1,4 @@
-<!-- Global site tag (gtag.js) - Google Analytics -->
-<script async src="https://www.googletagmanager.com/gtag/js?id=GA_MEASUREMENT_ID"></script>
-<script>
-  window.dataLayer = window.dataLayer || [];
-  function gtag(){dataLayer.push(arguments);}
-  gtag('js', new Date());
-
-  gtag('config', 'GA_MEASUREMENT_ID');
-</script>
+[![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=ywy-aNKh)](https://github.com/anuraghazra/github-readme-stats)
 
 ## Hello! Welcome to my fantasy world (!----- ##
 
