@@ -136,7 +136,7 @@ yjl和jtj可以伴唱（！
 
 把sayori还我啊（
 
-![这是图片](https://vkceyugu.cdn.bspapp.com/VKCEYUGU-imgbed/e4f27ba4-422f-43ae-a7a8-9fbb21ce14f3.jpg)
+![这是图片](file:///C:/Users/weiyi/AppData/Roaming/Tencent/QQ/Temp/%25%25%7DLKJFPS5~[IERIK3~MSPY.jpg)
 
 不行啊 我好像还是不会放图片啊（笑
 
