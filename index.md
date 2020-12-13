@@ -142,7 +142,7 @@ yjl和jtj可以伴唱（！
 
 *那*
 
-[pixivel](https://link.zhihu.com/?target=https%3A//pixivel.moe/ "我永远爱ddlc")
+[pixivel](https://pixivel.moe/ "我永远爱ddlc")
 
 [markdown](https://markdown.com.cn/basic-syntax "别再忘了了（头疼")
 
