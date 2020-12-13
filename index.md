@@ -122,6 +122,8 @@ yjl和jtj可以伴唱（！
 
 ### 12.6
 
+12.13 **逝者安息**
+
 # 我永远爱sayori
 
 ## 我永远爱sayori
@@ -134,4 +136,16 @@ yjl和jtj可以伴唱（！
 
 把sayori还我啊（
 
-![这是图片](https://vkceyugu.cdn.bspapp.com/VKCEYUGU-imgbed/e4f27ba4-422f-43ae-a7a8-9fbb21ce14f3.jpg)
+![这是图片](vkceyugu.cdn.bspapp.com/VKCEYUGU-imgbed/e4f27ba4-422f-43ae-a7a8-9fbb21ce14f3.jpg)
+
+不行啊 我好像还是不会放图片啊（笑
+
+*那*
+
+[pixivel](https://link.zhihu.com/?target=https%3A//pixivel.moe/ "我永远爱ddlc")
+
+[markdown](https://markdown.com.cn/basic-syntax "别再忘了了（头疼")
+
+[终点](https://bbs.zdfx.net/forum.php?mobile=no "能上吗……？")
+
+[图床](https://imgbed.cn/?f=zhihu_286404834 "虽然还不会放图就是了")
