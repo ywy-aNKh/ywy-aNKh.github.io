@@ -52,15 +52,15 @@ in in in now time s_  _ sfsk_______asdf____H______hel___________________________
 
 **To be honest**
 
-# GITHUB YYDS YYDS YYDS
+# 啊 写什么呢
 
-我要开源代码也没啥用噢 _ 所以也就用GitHub _ witHoUt aNY CODE!!_____
+我_____
 
 umm
 
 ummmmmmmmmmmmmm 
 
-### 无聊子啊无聊子
+### 无聊啊无聊
 - 到底谁会第一个打开这里啊（
 
 *真的很期待啊喂*
@@ -69,11 +69,11 @@ ummmmmmmmmmmmmm
 
 ## **[这应该是修改地址，直接点试试（？](https://github.com/ywy-aNKh/ywy-aNKh.github.io/edit/main/index.md "太荣幸了，你愿意一直读到这里（笑")**
 
-# 如果能修改，而且你愿意的话，可以在74行的#后面直接留言
+# 如果能修改，而且你愿意的话，可以在76行的#后面直接留言
 
 哪怕吱一声也好呀（小声
 
-# 
+# 这里是76行，2023.5.19，反正不会来留言，有也留不了（）
 
 I'm really looking forward to you. When will you find me………？
 
@@ -109,12 +109,6 @@ yjl和jtj可以伴唱（！
 我不想被支配了
 
 [你的世界这么大](https://www.zhihu.com/question/426004817/answer/1540370419 "虚无缥缈")
-
-我也曾经是 他们的偶像呢（笑
-
-**所以下周三还请加油啊**
-
-*我试试一下午能背多少东西*
 
 我也想当程序员呢
 
@@ -161,3 +155,7 @@ yjl和jtj可以伴唱（！
 上海的疫情让人心悸。
 
 。
+
+# 这里是2023.5.19
+
+事情的发展总是让人意想不到。刚注册GitHub的时候我还刚初二，现在已经在江苏读高二了。
