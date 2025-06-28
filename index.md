@@ -8,6 +8,8 @@ ummm welcome welcome
 
 棺材店六折优惠玩家 _ 自闭儿童 _
 
+[修改地址](https://github.com/ywy-aNKh/ywy-aNKh.github.io/edit/main/index.md)
+
 # it's 2020/11/23 1:20
 
 怎么大家都睡了哦（挠头
